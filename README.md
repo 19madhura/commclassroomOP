@@ -1,3 +1,3 @@
 # commclassroomOP
 
-Kunal Kushwaha learing github amazing..
+Knunal Kushwaha learing github amazing.. and I am learning from it
